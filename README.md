@@ -2,9 +2,11 @@
 Archive For Box 001
 
 -------
-Box of Circuits, Unfortunatly has closed buisness. Due you do great things! This will serve as an archive of materials that where served at:
+Box of Circuits, Unfortunatly has closed buisness. Due to a family emergency, We thank you for your time and buisness. 
+This will serve as an archive of materials that where served at:
 boxofcircuits.com
 
+box 001
 ------
 
 
