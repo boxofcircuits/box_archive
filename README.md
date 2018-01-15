@@ -56,4 +56,4 @@ Verifying MD5 (https://drive.google.com/open?id=1MAes5v_uXwrPtJFiK88r4d7CbMd7mGj
 
 Questions or Concerns
 
-Please email: support@boxofcircuits.com (mailto:support@boxofcircuits.com?subject=Questions%20or%20Concerns)
+Please email: support@boxofcircuits.com 
